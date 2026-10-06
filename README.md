@@ -1,0 +1,1 @@
+# -20-analiz-konfiguracii-1c-
